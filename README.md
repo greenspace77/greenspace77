@@ -1,6 +1,6 @@
 Do you give up ?
 
-Be disappointed ?
+Are you disappointed ?
 
 Are you painful ?
 
